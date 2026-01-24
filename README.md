@@ -11,4 +11,4 @@ This space is a collection of my work and a record of my journey as I explore Da
 ### Connect
 [LinkedIn](https://linkedin.com/in/hisseindoudou)
 
-[Personal Website](https://www.youzverse.com)
+[Personal Website](https://youzverse.com)
